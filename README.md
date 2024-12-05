@@ -1,5 +1,4 @@
-# Download Block Blast Mod APK Latest Version 6.0.3
-
+# Download Block Blast Mod APK Latest (No Ads) Version 6.0.3 
 ## Download Link 👉[Download Now Block Blast Mod Apk](https://blockblastmodapk.com/)
 
 ---
